@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nisarg2313
+- 👋 Hi, I’m @Nisarg Leuva
 - 👀 I’m interested in DATA ANALYSIT
 - 🌱 I’m currently learning BCA
 - 💞️ I’m looking to connect with miss unknown
